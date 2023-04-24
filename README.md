@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de SeeyouJon 😁
+## Bem-vindo(a) ao perfil de SeeyouJonSG 😁
 
  <div>
    <a href="https://github.com/devemdobro">
@@ -14,7 +14,7 @@
  
  <br>
  
-  ### Pra conteúdo sobre programação me segue nas redes abaixo!
+  ### Segue abaixo minhas redes sociais!
  
 <div> 
  
